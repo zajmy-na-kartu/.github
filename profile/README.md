@@ -3,11 +3,6 @@
 # 🚀 Займы на карту онлайн: Рейтинг МФО 2026
 **Официальный аналитический реестр от Эвора Финанс**
 
-![Лицензия ЦБ РФ](https://img.shields.io/badge/Лицензия-ЦБ_РФ-blue?style=for-the-badge)
-![Одобрение 98%](https://img.shields.io/badge/Одобрение-98%25-green?style=for-the-badge)
-![Выплата СБП](https://img.shields.io/badge/Выплата-Мгновенно_СБП-orange?style=for-the-badge)
-
----
 
 [### 💎 ПЕРЕЙТИ В ПОЛНЫЙ РЕЕСТР ОФФЕРОВ 💎](https://mfo-finance.github.io/)
 
